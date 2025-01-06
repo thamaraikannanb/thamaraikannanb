@@ -5,7 +5,9 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/thamaraikannanb](https://github.com/thamaraikannanb)
 
-- 📫 How to reach me **thamaraikannanbala20@gmail.com**
+- 📧 Mail me at **thamaraikannanbala20@gmail.com**
+
+- 📃Take a look at my resume [https://thamaraikannan-resume.tinny.site/](https://thamaraikannan-resume.tinny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
