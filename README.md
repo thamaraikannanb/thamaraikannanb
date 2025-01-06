@@ -7,7 +7,7 @@
 
 - 📧 Mail me at **thamaraikannanbala20@gmail.com**
 
-- 📃Take a look at my resume [https://thamaraikannan-resume.tinny.site/](https://thamaraikannan-resume.tinny.site/)
+- 📃Take a look at my resume [https://thamaraikannan-resume.tiiny.site/](https://thamaraikannan-resume.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
